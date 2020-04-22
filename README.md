@@ -1,1 +1,1 @@
-https://kilomebit17.github.io/termodevo/
+https://kilomebit17.github.io/termoderevo/
